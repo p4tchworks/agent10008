@@ -1,16 +1,14 @@
-## Hi there 👋
+# [[ NUMBER 1 RATED SALESMAN 1997! ]] ![Image](https://github.com/user-attachments/assets/c6a0f3ad-d987-455d-bc15-c57acc3ceb81)
+ > [!CAUTION]
+> ***I [[HEARTSHAPEDOBJECT]] SPamTENNA!!!***
+> <sub> ( waiT!! NO! NO!! YOu'rE DISGUSTING! ) </sub>
+- MY Name Is SPAMTON! Or DESI ! Or! OR! WHATEeverYOU WANT!!
+- C + H!!
+- IM [[picky eater!]] WITH WHO I [[FOllow home]]!
+- PLEAAAAAAAAASE INTERACT SPAMTENNA FANS...
+- [[MINER]]! MINOR! [[UNDER 18 YEARS]] !!
 
-<!--
-**agent10008/agent10008** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ***FANDOMS?! WHO NEEDS THOSE??!!***
+  - UT/DR (MAIN)
+  - SPLATOON
+  - ROBLOX??
