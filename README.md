@@ -9,6 +9,7 @@
   - IM [[picky eater!]] WITH WHO I [[FOllow home]]!
   - PLEAAAAAAAAASE INTERACT SPAMTENNA FANS...
   - [[MINER]]! MINOR! [[UNDER 18 YEARS]] !!
+  - IM SHY ..??!?!?COME TO ME [[FIRST PLACe]]
 
   ***FANDOMS?! WHO NEEDS THOSE??!!***
   - UT/DR (MAIN)
